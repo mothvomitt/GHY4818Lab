@@ -1,0 +1,26 @@
+## Moth Loftus
+
+### Summary
+
+My goal is to gain experience through a company that values growth and ambition that will serve my education as a college student. I'm a senior at Appalachian State University studying biology and geography. 
+
+ <img src="C:\Users\0530i\Downloads\GHY4818\New folder\IMG_9589.jpg">
+
+
+
+
+### Education 
+Pitt County Schools Early College High School (High School Diploma - 4.6)
+
+Pitt Community College (Associates in Science - 4.0)
+
+Appalachian State University, Boone Bachelor’s of Science Degree in Biology with a concentration in Ecology, Evolution, and Environmental Biology (3.71, Projected Graduation in May 2025)
+
+### Work Experience/Relevant Research
+1. Held Jobs
+    - High School Civics and Economics Tutor and Teaching Assistant (2017-2021)
+    - LEAD Tutor for Introductory Chemistry and Organic Chemistry (2023-Present)
+
+
+
+
