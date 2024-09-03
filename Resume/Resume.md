@@ -9,7 +9,7 @@ My goal is to gain experience through a company that values growth and ambition 
 
 * Pitt Community College (Associates in Science - 4.0)
 
-* [Appalachian State University](https://www.appstate.edu/), Boone Bachelor’s of Science Degree in Biology with a concentration in Ecology, Evolution, and Environmental Biology (3.71, Projected Graduation in May 2025)
+* [Appalachian State University](https://www.appstate.edu/), Bachelor’s of Science Degree in Biology with a concentration in Ecology, Evolution, and Environmental Biology (3.71, Projected Graduation in May 2025)
 
 ### Work Experience/Relevant Research
 1. Held Jobs
