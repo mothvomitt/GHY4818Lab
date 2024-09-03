@@ -20,7 +20,7 @@ My goal is to gain experience through a company that values growth and ambition 
         * Worked closely with graduate students and capstone-taking seniors to analyze bee and other pollinator behavior and fecundity.
 
 (image upload:)
-<img src="C:\Users\0530i\Downloads\GHY4818\New folder\IMG_9589.jpg">
+<img src="C:\Users\0530i\Downloads\GHY4818\Resume\IMG_9589.jpg">
 
 
 
